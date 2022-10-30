@@ -1,1 +1,0 @@
-# inyukl.github.io
